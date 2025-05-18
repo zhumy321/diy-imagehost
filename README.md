@@ -6,4 +6,4 @@ The author: ZHU Minyi
 
 Github: zhumy321
 
-email: irene_Z_@outlook.com   or   my_irene_zhu@163.com
+email: irene_Z_@outlook.com   or   2018163014@email.szu.edu.cn
